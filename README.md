@@ -1,0 +1,1 @@
+# Intenzitasvizsgalat2.0
